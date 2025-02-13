@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @laurenyip
-- 👀 I’m interested in ...visual computing, AI, sustainability/ocean conservation, and design!
-- 🌱 I’m currently learning ...AI/ML @ AI4GOOD Lab!
+- 👀 I’m interested in ...becoming a PM, visual computing, AI, sustainability/ocean conservation, and design!
+- 🌱 I’m currently learning ...everything PM and startup related!
 - 💞️ I’m looking to collaborate on ...any fun projects with cool people :)
 - 📫 How to reach me ...email laurenyip10@gmail.com
 - 😄 Pronouns: ...she/her
